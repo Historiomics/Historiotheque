@@ -5,7 +5,7 @@
 
 * [__*THE HISTORIOTHEQUE*__](https://historiotheque.ca/) is treated as an *Abstract Workspace* in three dimensions (*"3D"*);
 * The [__*WORKSPACE*__](https://medium.com/design-science/workspace-906aded7edb2) is the *3D Surface or Curve of The Historiotheque*, also called its __*Historiotopia*__;
-* SEE: *Material Memory, Analog Database, Database arts*;
+* SEE: *Material Memory, Analog Database, [Database arts](https://databasearts.blogspot.com/)*;
 * [...]
 
 - - - - - - - - -
