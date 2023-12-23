@@ -14,7 +14,7 @@
 ![THE HISTORIOTHEQUE](https://historiotheque.files.wordpress.com/2023/12/historiotheque_19dec23a-02h52a_800px_wide.png)
 
 __I. THE HISTORIOTHEQUE__
-- The Historiotheque is essentially a design concept for an “Art House” that is similar to a kind of “Historical Society” all the while being an “Art Studio” containing its own “Archive”;
+- The [Historiotheque](https://historiotheque.ca/) is essentially a design concept for an “Art House” that is similar to a kind of “Historical Society” all the while being an “Art Studio” containing its own “Archive”;
 - The Artist or Artists working in the Historiotheque produce innovative cultural artifacts which they sell on the Art Market as well as maintain an archive of the history of the Historiotheque, as well as the history of the environing locale where they are situated;
 - The concept of Historiotheque comes from the Greek ἵστωρ (hístōr, “witness”) and θήκη (thḗkē, “box, chest”), essentially making it a Witness-Box;
 - The main idea is that Historiotheques in the plural would be distributed across geographical space, acting as a new kind of cultural institution which is a rich place with lots of cultural activity, cultural innovation, as well as history, historiography, and archival practices;
@@ -46,7 +46,7 @@ __III. HISTORIOTHEQUES DISTRIBUTED ACROSS THE LAND__
 - We call this global history-in-the-making “The Historiosphere”;
 - The Historiosphere NEEDS Historiotheques distributed across time and space; they are the engines of cultural innovation and expansion; they preserve the documentary heritage of every given place where they are instituted, and together as a global, distributed network, they help preserve the “Global Documentary Heritage” of humankind;
 - This is still only a design concept; I’ve been “operating” my own unique Historiotheque, and the Art Operation and Archive it houses, for at least 15 years (at least since the design concept first arose as The Historiotheque);
-- Search online or on social media sites for the term #historiotheque if you want to see content being produced by my Historiotheque.
+- Search online or on social media sites for the term __*#historiotheque*__ if you want to see content being produced by my Historiotheque.
 
 - - - - - - - - -
 
